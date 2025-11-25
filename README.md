@@ -1,4 +1,4 @@
-## Oi eu sou o Henryque Affiune 👋
+## Oi, eu sou o Henryque Affiune 👋
 
 Acompanhe minha jornada (: 
 
